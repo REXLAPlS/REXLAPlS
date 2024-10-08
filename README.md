@@ -1,5 +1,6 @@
-## wip
+## DANCE POTATO BOY, DANCE!
 
+![‎ ](https://i.postimg.cc/50WJkDq2/31456f04e7a05dd79b8874d59c54ddbc.gif)
 <!--
 **HOGHUNT/HOGHUNT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
